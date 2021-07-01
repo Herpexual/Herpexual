@@ -14,8 +14,7 @@
 
 - 👓 enrolled post secondary @ CDI College the networking sysyems administration and cybersecurity course and got accepted/have plans to pursue another year🙃😃
 
-- 😇 Which has me with a lot more time to devote to my main project which is and has been Zeta-ps which is and always will be a free to play game made by myself Still a work in progress but a public release point should be ready soon. website is https://www.zeta-ps.com // Also minor experience with p2p connection data/writing and working on applications for discord.
+- 😇 http://www.landing.zeta-ps.com
 
 - 🤗 Join Zeta-PS's community discord @ https://discord.gg/GpxPrQx or join my other gaming based community @ https://discord.gg/GpxPrQx
 
-- 😋 Web and Vm storage/ API space available on my SSL encrypted domain, dm me for inquiries
