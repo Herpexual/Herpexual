@@ -4,9 +4,7 @@
 
 - ✌ Interested in contributing to Zeta? Shoot me an email/dm on discord and we can arrange something as I'm always open to having the extra hands on board.
 
-- 📫 How to reach me Discord @ Herpex#8559, mention me on here, or email at dylanv.zetaps@gmail.com - Buisness inquiries for subdomain rentals/develpment contracting can be sent to dylan.venus@zeta-ps.com
-
-- 💙 Will be making myself a patreon/venmo or cash app in the near future.
+- 📫 How to reach me Discord @ Herpex#8559, mention me on here, or email at dylanv.zetaps@gmail.com - Buisness inquiries for subdomain rentals/develpment contracting can be sent 
 
 - 😉 For now please send any payments/donations to my PayPal which is dylanv.zetaps@gmail.com
 
@@ -14,7 +12,8 @@
 
 - 👓 enrolled post secondary @ CDI College the networking sysyems administration and cybersecurity course and got accepted/have plans to pursue another year🙃😃
 
-- 😇 http://www.landing.zeta-ps.com
+- 😇 https://zeta-ps.ca
 
 - 🤗 Join Zeta-PS's community discord @ https://discord.gg/GpxPrQx or join my other gaming based community @ https://discord.gg/GpxPrQx
+
 
